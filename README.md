@@ -3,4 +3,4 @@
 
 ---
 
-Github profile: [https://github.com/juanfonsecasolis-gorillalogic2](https://github.com/juanfonsecasolis-gorillalogic2)
+Github profile: [https://github.com/juanfonsecaGL](https://github.com/juanfonsecaGL)
